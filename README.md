@@ -1,1 +1,0 @@
-# One-shop-style-hub
